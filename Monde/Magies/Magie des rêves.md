@@ -1,0 +1,1 @@
+Pratiquée en prenant une drogue qui nous "endort" (transe). Le consommateur s'oublie et voyage (type projection astrale) ce qui lui donne des "visions", les fameux "rêves" (ce ne sont pas vraiment des rêves mais la mémoire a du mal a les reconstituer). Plus le consommateur de drogue est habitué à celle-ci plus il a des souvenirs de ces fameux rêves
