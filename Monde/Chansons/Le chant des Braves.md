@@ -1,8 +1,44 @@
-https://www.youtube.com/watch?v=icYYRGglXM4
+# Le chant des Braves
 
-Chant de marins arekois entonné pour se donner courage avant d'emprunter La Voie des Braves, la route maritime la plus dangereuse du Valar.
+https://www.youtube.com/watch?v=t6VMSYIXCCY
+
+
+Chant de marins arekois entonné par coutume avant d'emprunter La Voie des Braves, la route maritime la plus dangereuse du Valar. De par son rythme entraînant, il a failli par être chanté, non sans une pointe d'ironie, jusque dans les tavernes vintikaines.
 
 ---
+
+La Voie des Braves nous affronterons,
+La tête haute et fière nous rentrerons !
+
+Un souffle bestial,
+Gonfle nos voiles,
+Nous rapproche des rochers,
+Des rochers, ces maudits couperets ! 
+
+Le capitaine, Ô capitaine,
+En eaux vilaines,
+Demande des bras,
+Pour hisser le grand mât, le grand mât.
+
+Et dans la cale,
+On rame, on râle,
+On manque d'air,
+On r'crache la bière
+En flots amers,
+A la mer !
+
+Mon fier équipage, courage, courage,
+S'il le faut à la nage,
+Accomplissons la mission, la mission,
+Atteignons Volition !
+
+Partis d'Accalmie,
+Ivres et repus,
+Nous avons chanté,
+
+
+
+-
 
 La tempête gonfle nos voiles,
 De son souffle enragé et bestial,
@@ -25,35 +61,3 @@ Et au pays nous rentrerons,
 En ayant accompli notre mission.
 
 Mes confrères, nous
-
-Jusqu'à Volition nous irons,
-La tête haute et fière nous reviendrons,
-
-Ô capitaine,
-Réclame plus de bras,
-Pour hisser le grand mât,
-Sur ces eaux vilaines,
-
-Un souffle bestial,
-Gonfle nos voiles,
-Esquivons les rochers,
-Ces maudits couperets,
-
-Dans la cale,
-On rame, on râle,
-On manque d'air,
-On recrache la bière
-
-Par terre, des flots amers,
-Qu'on jette à la mer,
-
-Ivres et repus,
-Nous avons chanté,
-
-Marins, courage,
-Avec rage,
-Atteignons Volition,
-Notre belle mission,
-
-Nous mouillerons à Volition
-
